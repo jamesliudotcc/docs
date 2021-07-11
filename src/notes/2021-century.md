@@ -1,0 +1,11 @@
+# Riding a Century Solo
+
+I like to do a 100-mile ride every year. It has been a while since the last one, so it feels like a great relief.
+
+If you are in reasonably good shape, not even good cycling shape, you can do a century too. It's not really like a marathon. It is probably closer to a half-marathon in terms of difficulty. It takes a little bit of training, but you don't really need a months-long detailed plan. All you need is to work up to a 70 mile ride. Can't do a 70 mile ride? Work up to that with a 50-mile ride. Can't do a 50 mile ride? Work up to that with a 30 mile ride or two. Can't do a 30 mile ride? Uh, I don't know how to help you.
+
+This year around, honestly, I felt worse after the 70-mile ride then afer the 114 mile ride. I knew I should have done some smaller rides that weekend to work up to 70, but it was threatening to rain on Sunday, so I went for it. By around mile 60, my body was not happy.
+
+You probably want to go with a group, or at least a friend, you first time out. The first couple times I tried, I went with a friend. The first time, we got snowed on, and so after about 55 miles, we got on a commuter train home. Also, I may have been riding a fixie. My second attempt, my friend was riding a fixie, and that time we made it. The next few were with larger groups, which makes it much, much easier. Someone will know where to stop for water and where to get tacos.
+
+Pack a bunch of water and snacks. 2 bottles is not enough. This last one was sunny and mild, and I still drank 6 full bottles, plus a fountain coke. The last 10 miles or so, I didn't have any more water to drink, but honestly, however much water you have, the last 10 miles it is better for the water to be in your body than in bottles. I had 3 bottles, and if I had 2, I would have made it by stopping more often. You will surely find somewhere to fill up on water, even if it is a gas station and you buy a bunch. For really hot, hard days, you will want 4 bottles. The best way I can think of is a behind the saddle water bottle carrier for 2 bottles. I am tempted to get a tri bike with a water  Snacks, pack a variety. Unless it is a "race" you should stop for a meal some time, after half way. Eat big the night before, and eat a big breakfast. Your stomach will not be happy so even after you finish.
