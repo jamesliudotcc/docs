@@ -29,7 +29,7 @@ Seattle, he mostly commutes on a bus. One day, we had an off site, and of course
 drove the Viper. The lesson was, live your best life.
 
 It was also time to retire my Specialized Crux, since I wasn't racing it any more,
-and had gone through plenty. There were a bunch of misalignments as a result of some
+and it had gone through plenty. There were a bunch of misalignments as a result of some
 crashes along the way, but hey, it was a cyclocross bike, cyclocross bikes go through
 a lot.
 
