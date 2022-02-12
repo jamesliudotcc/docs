@@ -1,6 +1,6 @@
 # Nobody Will Teach me Math Either
 
-[Here](https://news.ycombinator.com/item?id=30302079) is an interesting [article](https://news.ycombinator.com/item?id=30302079) about math teaching.
+[Here](https://news.ycombinator.com/item?id=30302079) is an interesting [article](https://www.dailyprincetonian.com/article/2022/02/stem-intro-courses-humanites-exploration) about math teaching.
 
 Some people did not read the article very carefully before commenting or voting. The author was through linear algebra before college, hardly a math novice. That was the course they took, MAT202, Linear Algebra with Applications. Hardly someone out of their league for the course. Scroll down in the comments, and you'll see that it is a classic weed-out class. It's not supposed to help you learn. Sigh.
 
