@@ -25,3 +25,6 @@ A team plays to win. So, from that, it follows:
 - Spend time together
 - Cheer each other on
 
+Maybe a working group is a better for a task than a team:
+
+> Many groups that run things can be more effective as working groups than as teams. The key judgment is whether the sum of individual bests will suffice for the performance challenge at hand or whether the group must deliver substantial incremental performance requiring real joint work products.
